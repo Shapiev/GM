@@ -1,0 +1,2 @@
+# GM
+Beginner(noob XD)
